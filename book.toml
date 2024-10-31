@@ -1,0 +1,6 @@
+[book]
+authors = ["Jake Goritski"]
+language = "en"
+multilingual = false
+src = "src"
+title = "The Gateless Gate"
