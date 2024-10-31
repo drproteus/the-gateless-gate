@@ -1,6 +1,10 @@
 # The Gateless Gate
 _by Ekai (Mu-mon), tr. Nyogen Senzaki and Paul Reps (1934)_
 
+<img
+  style="float: right; padding-left: 10px;"
+  src="./images/manjusri.jpg">
+
 This classic Zen Buddhist collection of 49 koans with commentary by Mumon
 was originally published in 1934, and later included in Paul Reps and
 Nyogen Senzaki's popular anthology _Zen Flesh, Zen Bones_. Due to non-renewal
