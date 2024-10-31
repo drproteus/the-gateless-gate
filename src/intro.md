@@ -2,7 +2,7 @@
 _by Ekai (Mu-mon), tr. Nyogen Senzaki and Paul Reps (1934)_
 
 <img
-  style="float: right; padding-left: 10px;"
+  style="float: right; padding-left: 16px;"
   src="./images/manjusri.jpg">
 
 This classic Zen Buddhist collection of 49 koans with commentary by Mumon
