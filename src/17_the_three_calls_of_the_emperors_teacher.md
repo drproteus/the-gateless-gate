@@ -21,8 +21,10 @@ Chu said: "I ought to apologize to you for all this calling, but really you ough
 > Now I want to ask you: Which one should apologize?
 
 ```
-When prison stocks are iron and have no place for the head, the prisoner is doubly in trouble.
- When there is no place for Zen in the head of our generation, it is in grievous trouble.
+When prison stocks are iron and have no place for the head,
+    the prisoner is doubly in trouble.
+ When there is no place for Zen in the head of our generation,
+    it is in grievous trouble.
  If you try to hold up the gate and door of a falling house,
  You also will be in trouble.
 ```
