@@ -12,7 +12,7 @@ Nansen replied: "It is not mind, it is not Buddha, it is not things."
 
 ```
 Nansen was too kind and lost his treasure.
- Truly, words have no power.
- Even though the mountain becomes the sea,
- Words cannot open another's mind.
+Truly, words have no power.
+Even though the mountain becomes the sea,
+Words cannot open another's mind.
 ```

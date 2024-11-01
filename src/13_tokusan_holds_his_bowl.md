@@ -14,7 +14,7 @@ The next day Tokusan delivered an entirely different kind of lecture to the monk
 
 ```
 Whoever understands the first truth
- Should understand the ultimate truth.
- The last and first,
- Are they not the same?
+Should understand the ultimate truth.
+The last and first,
+Are they not the same?
 ```

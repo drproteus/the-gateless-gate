@@ -24,7 +24,7 @@ On that day, in front of the lecture hall, Tokusan burned to ashes his commentar
 
 ```
 A hundred hearings cannot surpass one seeing,
- But after you see the teacher, that one glance cannot surpass a hundred hearings.
- His nose was very high
- But he was blind after all.
+But after you see the teacher, that one glance cannot surpass a hundred hearings.
+His nose was very high
+But he was blind after all.
 ```

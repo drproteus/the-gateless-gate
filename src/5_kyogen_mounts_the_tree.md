@@ -8,7 +8,7 @@ Kyogen said: "Zen is like a man hanging in a tree by his teeth over a precipice.
 
 ```
 Kyogen is truly a fool
- Spreading that ego-killing poison
- That closes his pupils' mouths
- And lets their tears stream from their dead eyes.
+Spreading that ego-killing poison
+That closes his pupils' mouths
+And lets their tears stream from their dead eyes.
 ```

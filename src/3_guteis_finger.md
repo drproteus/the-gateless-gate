@@ -12,7 +12,7 @@ When Gutei was about to pass from this world he gathered his monks around him. "
 
 ```
 Gutei cheapens the teaching of Tenryu,
- Emancipating the boy with a knife.
- Compared to the Chinese god who pushed aside a mountain with one hand
- Old Gutei is a poor imitator.
+Emancipating the boy with a knife.
+Compared to the Chinese god who pushed aside a mountain with one hand
+Old Gutei is a poor imitator.
 ```

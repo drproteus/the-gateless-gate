@@ -6,7 +6,7 @@ Wakuan complained when he saw a picture of bearded Bodhidharma: "Why hasn't that
 
 ```
 One should not discuss a dream
- In front of a simpleton.
- Why has Bodhidharma no beard?
- What an absurd question!
+In front of a simpleton.
+Why has Bodhidharma no beard?
+What an absurd question!
 ```

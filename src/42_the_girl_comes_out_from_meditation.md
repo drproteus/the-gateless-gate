@@ -16,7 +16,7 @@ No sooner had the Buddha spoken than that Bodhisattva sprang up from the earth a
 
 ```
 One could not awaken her, the other could.
- Neither are good actors.
- One wears the mask of god, one a devil's mask.
- Had both failed, the drama still would be a comedy.
+Neither are good actors.
+One wears the mask of god, one a devil's mask.
+Had both failed, the drama still would be a comedy.
 ```

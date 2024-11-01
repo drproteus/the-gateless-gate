@@ -10,7 +10,7 @@ Amban, a layman Zen student, said: "Mu-mon has just published forty-eight koans 
 
 ```
 If anyone tells you fire is light,
- Pay no attention.
- When two thieves meet they need no introduction:
- They recognize each other without question.
+Pay no attention.
+When two thieves meet they need no introduction:
+They recognize each other without question.
 ```

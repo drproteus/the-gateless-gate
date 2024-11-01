@@ -8,7 +8,7 @@ Buddha said: "I have the eye of the true teaching, the heart of Nirvana, the tru
 
 ```
 At the turning of a flower
- His disguise was exposed.
- No one in heaven or earth can surpass
- Maha-Kashapa's wrinkled face.
+His disguise was exposed.
+No one in heaven or earth can surpass
+Maha-Kashapa's wrinkled face.
 ```

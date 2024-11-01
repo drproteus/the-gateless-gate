@@ -6,7 +6,7 @@ Hoen said: "The past and future Buddhas, both are his servants. Who is he?"
 
 ```
 Do not fight with another's bow and arrow.
- Do not ride another's horse.
- Do not discuss another's faults.
- Do not interfere with another's work.
+Do not ride another's horse.
+Do not discuss another's faults.
+Do not interfere with another's work.
 ```

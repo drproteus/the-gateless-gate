@@ -6,7 +6,7 @@ Shuzan held out his short staff and said: "If you call this a short staff, you o
 
 ```
 Holding out the short staff,
- He gave an order of life or death.
- Positive and negative interwoven,
- Even Buddhas and patriarchs cannot escape this attack.
+He gave an order of life or death.
+Positive and negative interwoven,
+Even Buddhas and patriarchs cannot escape this attack.
 ```

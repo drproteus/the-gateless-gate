@@ -8,7 +8,7 @@ Tozan said: "This flax weighs three pounds."
 
 ```
 Three pounds of flax in front of your nose,
- Close enough, and mind is still closer.
- Whoever talks about affirmation and negation
- Lives in the right and wrong region.
+Close enough, and mind is still closer.
+Whoever talks about affirmation and negation
+Lives in the right and wrong region.
 ```

@@ -31,7 +31,7 @@ Hyakujo clapped his hands and laughed at this discernment. "I thought a Persian 
 
 ```
 Controlled or not controlled?
- The same dice shows two faces.
- Not controlled or controlled,
- Both are a grievous error.
+The same dice shows two faces.
+Not controlled or controlled,
+Both are a grievous error.
 ```

@@ -12,7 +12,7 @@ Nansen said: "If you had been there, you could have saved the cat."
 
 ```
 Had Joshu been there,
- He would have enforced the edict oppositely.
- Joshu snatches the sword
- And Nansen begs for his life.
+He would have enforced the edict oppositely.
+Joshu snatches the sword
+And Nansen begs for his life.
 ```

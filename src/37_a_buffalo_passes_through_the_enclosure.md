@@ -6,7 +6,7 @@ Goso said: "When a buffalo goes out of his enclosure to the edge of the abyss, h
 
 ```
 If the buffalo runs, he will fall into the trench;
- If he returns, he will be butchered.
- That little tail
- Is a very strange thing.
+If he returns, he will be butchered.
+That little tail
+Is a very strange thing.
 ```

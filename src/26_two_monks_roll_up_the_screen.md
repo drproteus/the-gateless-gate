@@ -8,7 +8,7 @@ Hogen, observing the physical moment, said: "The state of the first monk is good
 
 ```
 When the screen is rolled up the great sky opens,
- Yet the sky is not attuned to Zen.
- It is best to forget the great sky
- And to retire from every wind.
+Yet the sky is not attuned to Zen.
+It is best to forget the great sky
+And to retire from every wind.
 ```

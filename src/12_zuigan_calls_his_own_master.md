@@ -16,7 +16,7 @@ Again he answered: "Yes, sir."
 
 ```
 Some Zen students do not realize the true man in a mask
- Because they recognize ego-soul.
- Ego-soul is the seed of birth and death,
- And foolish people call it the true man.
+Because they recognize ego-soul.
+Ego-soul is the seed of birth and death,
+And foolish people call it the true man.
 ```

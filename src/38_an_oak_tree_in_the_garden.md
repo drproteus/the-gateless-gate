@@ -8,7 +8,7 @@ Joshu said: "An oak tree in the garden."
 
 ```
 Words cannot describe everything.
- The heart's message cannot be delivered in words.
- If one receives words literally, he will be lost,
- If he tries to explain with words, he will not attain enlightenment in this life.
+The heart's message cannot be delivered in words.
+If one receives words literally, he will be lost,
+If he tries to explain with words, he will not attain enlightenment in this life.
 ```

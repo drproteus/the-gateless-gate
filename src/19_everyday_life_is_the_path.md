@@ -18,7 +18,7 @@ At these words Joshu was enlightened.
 
 ```
 In spring, hundreds of flowers; in autumn, a harvest moon;
- In summer, a refreshing breeze; in winter, snow will accompany you.
- If useless things do not hang in your mind,
- Any season is a good season for you.
+In summer, a refreshing breeze; in winter, snow will accompany you.
+If useless things do not hang in your mind,
+Any season is a good season for you.
 ```

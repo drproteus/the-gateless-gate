@@ -12,7 +12,7 @@ Seijo said: "He was not a Buddha."
 
 ```
 It is better to realize mind than body.
- When mind is realized one need not worry about body.
- When mind and body become one
- The man is free. Then he desires no praising.
+When mind is realized one need not worry about body.
+When mind and body become one
+The man is free. Then he desires no praising.
 ```

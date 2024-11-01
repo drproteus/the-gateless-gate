@@ -10,7 +10,7 @@ The sixth patriarch happened to be passing by. He told them: "Not the wind, not 
 
 ```
 Wind, flag, mind moves,
- The same understanding.
- When the mouth opens
- All are wrong.
+The same understanding.
+When the mouth opens
+All are wrong.
 ```

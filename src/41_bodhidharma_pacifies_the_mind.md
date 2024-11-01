@@ -12,7 +12,7 @@ Bodhidharma says: "Then your mind is pacified already."
 
 ```
 Why did Bodhidharma come to China?
- For years monks have discussed this.
- All the troubles that have followed since
- Came from that teacher and disciple.
+For years monks have discussed this.
+All the troubles that have followed since
+Came from that teacher and disciple.
 ```

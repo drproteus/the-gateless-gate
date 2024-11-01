@@ -8,7 +8,7 @@ Ummon answered him: "Dried dung."
 
 ```
 Lightning flashes,
- Sparks shower.
- In one blink of your eyes
- You have missed seeing.
+Sparks shower.
+In one blink of your eyes
+You have missed seeing.
 ```

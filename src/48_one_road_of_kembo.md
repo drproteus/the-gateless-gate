@@ -10,7 +10,7 @@ This pupil went to Ummon and asked the same question. Ummon, who happened to hav
 
 ```
 Before the first step is taken the goal is reached.
- Before the tongue is moved the speech is finished.
- More than brilliant intuition is needed
- To find the origin of the right road.
+Before the tongue is moved the speech is finished.
+More than brilliant intuition is needed
+To find the origin of the right road.
 ```

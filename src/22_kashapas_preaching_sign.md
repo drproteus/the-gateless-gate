@@ -12,7 +12,7 @@ Said Kashapa: "Now you can take down my preaching sign and put up your own."
 
 ```
 The point of the question is dull but the answer is intimate.
- How many persons hearing it will open their eyes?
- Elder brother calls and younger brother answers,
- This spring does not belong to the ordinary season.
+How many persons hearing it will open their eyes?
+Elder brother calls and younger brother answers,
+This spring does not belong to the ordinary season.
 ```

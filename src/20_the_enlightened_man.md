@@ -6,7 +6,7 @@ Shogen asked: "Why does the enlightened man not stand on his feet and explain hi
 
 ```
 If the feet of enlightenment moved, the great ocean would overflow;
- If that head bowed, it would look down upon the heavens.
- Such a body has no place to rest...
- Let another continue this poem.
+If that head bowed, it would look down upon the heavens.
+Such a body has no place to rest...
+Let another continue this poem.
 ```

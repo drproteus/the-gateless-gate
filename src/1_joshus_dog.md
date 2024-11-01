@@ -19,7 +19,7 @@ Joshu answered: "Mu." [Mu is the negative symbol in Chinese, meaning "No thing" 
 
 ```
 Has a dog Buddha-nature?
- This is the most serious question of all.
- If you say yes or no,
- You lose your own Buddha-nature.
+This is the most serious question of all.
+If you say yes or no,
+You lose your own Buddha-nature.
 ```

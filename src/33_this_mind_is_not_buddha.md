@@ -8,7 +8,7 @@ Baso said: "This mind is not Buddha."
 
 ```
 If you meet a fencing-master on the road, you may give him your sword,
- If you meet a poet, you may offer him your poem.
- When you meet others, say only a part of what you intend.
- Never give the whole thing at once.
+If you meet a poet, you may offer him your poem.
+When you meet others, say only a part of what you intend.
+Never give the whole thing at once.
 ```

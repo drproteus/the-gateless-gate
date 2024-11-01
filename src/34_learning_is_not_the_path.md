@@ -6,7 +6,7 @@ Nansen said: "Mind is not Buddha. Learning is not the path."
 
 ```
 When the sky is clear the sun appears,
- When the earth is parched rain will fall.
- He opened his heart fully and spoke out,
- But it was useless to talk to pigs and fish.
+When the earth is parched rain will fall.
+He opened his heart fully and spoke out,
+But it was useless to talk to pigs and fish.
 ```

@@ -6,7 +6,7 @@ Getsuan said to his students: "Keichu, the first wheel-maker of China, made two 
 
 ```
 When the hubless wheel turns,
- Master or no master can stop it.
- It turns above heaven and below earth,
- South, north, east, and west.
+Master or no master can stop it.
+It turns above heaven and below earth,
+South, north, east, and west.
 ```

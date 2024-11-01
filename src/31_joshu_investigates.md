@@ -10,7 +10,7 @@ Joshu remarked: "I have investigated that old woman."
 
 ```
 When the question is common
- The answer is also common.
- When the question is sand in a bowl of boiled rice
- The answer is a stick in the soft mud.
+The answer is also common.
+When the question is sand in a bowl of boiled rice
+The answer is a stick in the soft mud.
 ```

@@ -10,7 +10,7 @@ Kyozan arose and, hitting the gavel, said: "The truth of Mahayana teaching is tr
 
 ```
 In the light of day,
- Yet in a dream he talks of a dream.
- A monster among monsters,
- He intended to deceive the whole crowd.
+Yet in a dream he talks of a dream.
+A monster among monsters,
+He intended to deceive the whole crowd.
 ```

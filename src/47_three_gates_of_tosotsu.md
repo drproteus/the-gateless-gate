@@ -12,7 +12,7 @@ Thirdly, if you free yourself from birth and death, you should know where you ar
 
 ```
 An instant realization sees endless time.
- Endless time is as one moment.
- When one comprehends the endless moment
- He realizes the person who is seeing it.
+Endless time is as one moment.
+When one comprehends the endless moment
+He realizes the person who is seeing it.
 ```

@@ -6,7 +6,7 @@ Sekiso asked: "How can you proceed on from the top of a hundred-foot pole?" Anot
 
 ```
 The man who lacks the third eye of insight
- Will cling to the measure of the hundred feet.
- Such a man will jump from there and kill himself,
- Like a blind man misleading other blind men.
+Will cling to the measure of the hundred feet.
+Such a man will jump from there and kill himself,
+Like a blind man misleading other blind men.
 ```

@@ -6,7 +6,7 @@
 
 ```
 The moon above the clouds is the same moon,
- The mountains and rivers below are all different.
- Each is happy in its unity and variety.
- This is one, this is two.
+The mountains and rivers below are all different.
+Each is happy in its unity and variety.
+This is one, this is two.
 ```

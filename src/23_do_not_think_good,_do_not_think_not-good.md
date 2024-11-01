@@ -20,7 +20,7 @@ The sixth patriarch replied: "We studied together under the fifth patriarch. Cal
 
 ```
 You cannot describe it, you cannot picture it,
- You cannot admire it, you cannot sense it.
- It is your true self, it has nowhere to hide.
- When the world is destroyed, it will not be destroyed.
+You cannot admire it, you cannot sense it.
+It is your true self, it has nowhere to hide.
+When the world is destroyed, it will not be destroyed.
 ```

@@ -20,7 +20,7 @@ Joshu said: "Well given, well taken, well killed, well saved." And he bowed to t
 
 ```
 The light of the eyes is as a comet,
- And Zen's activity is as lightning.
- The sword that kills the man
- Is the sword that saves the man.
+And Zen's activity is as lightning.
+The sword that kills the man
+Is the sword that saves the man.
 ```

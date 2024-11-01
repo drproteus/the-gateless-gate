@@ -8,7 +8,7 @@ Fuketsu observed: "I always remember springtime in southern China. The birds sin
 
 ```
 Without revealing his own penetration,
- He offered another's words, not his to give.
- Had he chattered on and on,
- Even his listeners would have been embarrassed.
+He offered another's words, not his to give.
+Had he chattered on and on,
+Even his listeners would have been embarrassed.
 ```

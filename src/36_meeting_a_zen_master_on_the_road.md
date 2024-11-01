@@ -6,7 +6,7 @@ Goso said: "When you meet a Zen master on the road you cannot talk to him, you c
 
 ```
 Meeting a Zen master on the road,
- Face him neither with words nor silence.
- Give him an uppercut
- And you will be called one who understands Zen.
+Face him neither with words nor silence.
+Give him an uppercut
+And you will be called one who understands Zen.
 ```

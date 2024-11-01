@@ -12,7 +12,7 @@ Hyakujo smiled and said: "The chief monk loses." And Isan became the master of t
 
 ```
 Giving up cooking utensils,
- Defeating the chatterbox,
- Though his teacher sets a barrier for him
- His feet will tip over everything, even the Buddha.
+Defeating the chatterbox,
+Though his teacher sets a barrier for him
+His feet will tip over everything, even the Buddha.
 ```

@@ -14,7 +14,7 @@ The Buddha replied: "A good horse runs even at the shadow of the whip."
 
 ```
 To tread the sharp edge of a sword,
- To run on smooth-frozen ice,
- One needs no footsteps to follow.
- Walk over the cliffs with hands free.
+To run on smooth-frozen ice,
+One needs no footsteps to follow.
+Walk over the cliffs with hands free.
 ```

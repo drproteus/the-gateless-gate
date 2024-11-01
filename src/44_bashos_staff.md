@@ -6,7 +6,7 @@ Basho said to his disciple: "When you have a staff, I will give it to you. If yo
 
 ```
 With this staff in my hand
- I can measure the depths and shallows of the world.
- The staff supports the heavens and makes firm the earth.
- Everywhere it goes the true teaching will be spread.
+I can measure the depths and shallows of the world.
+The staff supports the heavens and makes firm the earth.
+Everywhere it goes the true teaching will be spread.
 ```

@@ -28,7 +28,7 @@ Before Ummon's words were ended Tozan was enlightened.
 
 ```
 The lioness teaches her cubs roughly;
- The cubs jump and she knocks them down.
- When Ummon saw Tozan his first arrow was light;
- His second arrow shot deep.
+The cubs jump and she knocks them down.
+When Ummon saw Tozan his first arrow was light;
+His second arrow shot deep.
 ```

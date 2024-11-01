@@ -12,7 +12,7 @@ Sozan said: "You have Zen, the best wine in China, and already have finished thr
 
 ```
 The poorest man in China,
- The bravest man in China,
- He barely sustains himself,
- Yet wishes to rival the wealthiest.
+The bravest man in China,
+He barely sustains himself,
+Yet wishes to rival the wealthiest.
 ```

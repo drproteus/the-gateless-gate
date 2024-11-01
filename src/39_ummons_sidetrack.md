@@ -14,7 +14,7 @@ Afterwards another teacher, Shishin, asked his pupils: "At what point did that s
 
 ```
 When a fish meets the fishhook
- If he is too greedy, he will be caught.
- When his mouth opens
- His life already is lost.
+If he is too greedy, he will be caught.
+When his mouth opens
+His life already is lost.
 ```

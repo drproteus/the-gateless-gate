@@ -8,7 +8,7 @@ Baso said: "This mind is Buddha."
 
 ```
 Under blue sky, in bright sunlight,
- One need not search around.
- Asking what Buddha is
- Is like hiding loot in one's pocket and declaring oneself innocent.
+One need not search around.
+Asking what Buddha is
+Is like hiding loot in one's pocket and declaring oneself innocent.
 ```
