@@ -30,6 +30,6 @@ and Baso's conundrum:
 as well as some involving bizarre behavior, such as
 [Nansen Cuts the Cat in Two](./14_nansen_cuts_the_cat_in_two.md)
 and
-[Blow out the Candle](./27_blow_out_the_candle.md).
+[Blow out the Candle](./28_blow_out_the_candle.md).
 
 While short and succinct, this book has enormous depth, and offers new rewards on repeated readings.
